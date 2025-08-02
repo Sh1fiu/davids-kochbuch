@@ -16,4 +16,7 @@ Wo Essen mehr ist als Nahrung: eine Offenbarung.
 
 Dieses Buch ist seine erste schriftliche Geste an die Welt. Ein Versuch, das Unbeschreibliche festzuhalten. 
 Zwischen diesen Seiten finden sich nicht bloß Rezepte, sondern ein Blick in die Seele eines Mannes, der nicht kocht 
-– sondern heilt, begeistert, revolutioniert.
+– sondern heilt, begeistert, revolutioniert. 
+
+Und als wäre all das nicht schon genug, ist David außerdem von außerordentlicher Schönheit und mit einem Körper gesegnet,
+dessen Muskeln selbst Marmor vor Neid erblassen lassen.
