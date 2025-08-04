@@ -21,4 +21,4 @@ Zwischen diesen Seiten finden sich nicht bloß Rezepte, sondern ein Blick in die
 Und als wäre all das nicht schon genug, ist David außerdem von außerordentlicher Schönheit und mit einem Körper gesegnet,
 dessen Muskeln selbst Marmor vor Neid erblassen lassen.
 
-CO-AUTOREN: 
+CO-AUTOREN: Lukas Rothmann
