@@ -22,4 +22,6 @@ Und als wäre all das nicht schon genug, ist David außerdem von außerordentlic
 dessen Muskeln selbst Marmor vor Neid erblassen lassen.
 
 
-CO-AUTOREN: Lukas Rothmann, Tim
+
+CO-AUTOREN: Lukas Rothmann, Tim, Barbodgarsha, Christian
+
