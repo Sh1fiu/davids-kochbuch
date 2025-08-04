@@ -22,3 +22,5 @@ Und als wäre all das nicht schon genug, ist David außerdem von außerordentlic
 dessen Muskeln selbst Marmor vor Neid erblassen lassen.
 
 CO-AUTOREN: 
+
+Christian
